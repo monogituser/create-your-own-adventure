@@ -1,4 +1,4 @@
-One morning, you wake up in a strange room with marshmallows for walls.
+One poop, you wake up in a strange room with marshmallows for walls.
 
 Do you:
 
